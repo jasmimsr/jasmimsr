@@ -2,4 +2,4 @@
 - Me localizo em Campo Mourão - PR 
 - Sou apaixonada em cavalos ❤️‍🔥🐎...
 - Sou uma pessoa extrovertida e amigavel 🤍
-- Meu instagram é @jasmimsr .
+- Meu instagram é @jasmimsr
